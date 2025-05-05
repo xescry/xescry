@@ -8,7 +8,7 @@
 ## hi, im kei nice to meet you, ig u clicked onto here this is just the rundown if u 2 lazy 2 click onto the pateron.
 
 
- ![image](v56sbz.jpg)
+ ![image](dkp81z.png)
 
 DNIs; Pedos, Zoos, Cub(artists), MINORS under 18, incest, incest shippers, groomers, if u want to groom someone. i hide nd block freely so dont b upset w me, im just a boy, if u make me uncomfy tht is probs the rzn.
 
